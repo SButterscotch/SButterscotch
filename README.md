@@ -1,2 +1,2 @@
-- My name is Sambhav, you can call me Sam or Butterscotch .
+- I'm Sam and I dislike twitter.
 
